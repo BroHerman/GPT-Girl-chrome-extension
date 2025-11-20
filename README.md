@@ -3,7 +3,7 @@
 ![Preview](./screenshots/light-mode.png)
 ---
 
-# Add an animated GPT-Girl to ChatGPT web UI background
+# Add an animated GPT-Girl to ChatGPT web UI
 
 ### Usage
 

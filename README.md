@@ -20,7 +20,7 @@ Email: nillinnillinnillin@outlook.com
 
 ### Support
 
-[Buy Me a Sock](buymeacoffee.com/mindows25)
+[Buy Me a Sock](https://buymeacoffee.com/mindows25)
 
 ---
 
@@ -41,4 +41,4 @@ Email: nillinnillinnillin@outlook.com
 
 ### 支持
 
-[送我一双袜子](buymeacoffee.com/mindows25)
+[送我一双袜子](https://buymeacoffee.com/mindows25)

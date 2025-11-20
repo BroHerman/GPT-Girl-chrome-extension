@@ -24,7 +24,7 @@ Email: nillinnillinnillin@outlook.com
 
 ---
 
-# 在网页版ChatGPT的中加入一个会动的女孩
+# 在网页版ChatGPT中加入一个会动的女孩
 
 ### 使用方式
 
